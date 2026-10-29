@@ -4,7 +4,7 @@
 
 ---
 
-<img src="stuffs/WHAT A LIFE _ TK - 𝙬𝙝𝙖𝙩 𝙖 𝙡𝙞𝙛𝙚.gif" style="width:100%">
+<img src="stuffs/WHAT A LIFE _ TK - 𝙬𝙝𝙖𝙩 𝙖 𝙡𝙞𝙛𝙚.gif" width="100%">
 
 ---
 
