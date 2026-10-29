@@ -1,1 +1,0 @@
-GRWWWWWW Ò ^ ó

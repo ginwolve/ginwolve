@@ -1,6 +1,6 @@
 <div align="center">
 
-###### | [Jump to TODO <sub>private](https://github.com/catunderrain/TO-DO/blob/main/readme.md) | [- MHVWbyGW16 -](https://github.com/*secret*) | [Jump to mainboard <sub>private](https://github.com/*secret!-stupid-vkl:D*) |
+###### | [Jump to TODO <sub>private](https://github.com/*nothing-to-stalk-bros*) | [- MHVWbyGW16 -](https://github.com/*secret*) | [Jump to mainboard <sub>private](https://github.com/*secret!-stupid-vkl:D*) |
 
 ---
 
