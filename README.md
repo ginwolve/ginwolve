@@ -8,7 +8,7 @@
 
 ---
 
-**"Trí tuệ nhân tạo nghĩ gì khi tan biến?"**<sub>(vi)</sub>
+**"Trí tuệ nhân tạo nghĩ gì khi tan biến?"**<sub>(vi)</sub><br>
 *\- Shiro Akabane 6-21:20 -*
 
 </div>
